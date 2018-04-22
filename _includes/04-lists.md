@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Read amazing books
+1. Learn everything
+1. Drink a lot of coffee
